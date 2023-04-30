@@ -4,3 +4,4 @@
 ![Olivia Oil painting](https://user-images.githubusercontent.com/130678125/232298818-64f064f3-51c0-4621-9855-18ecc69d8d74.png)
 ![Olivia Building design](https://user-images.githubusercontent.com/130678125/232422063-482868b8-efbb-498d-9b8d-dea31580dc21.png)
 ![Bryce Canyon](https://user-images.githubusercontent.com/130678125/235357796-6b518ca2-ee9d-4617-8d05-90159137f9bf.png)
+![Andrew Wyeth](https://user-images.githubusercontent.com/130678125/235359573-5fea1158-9bde-425c-9e7e-5ffa881ce341.png)
