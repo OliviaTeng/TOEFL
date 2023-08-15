@@ -9,3 +9,11 @@
 ![Olivia sunspot](https://github.com/OliviaTeng/TOEFL/assets/130678125/514ea571-3961-40f9-abd5-ed978e248837)
 ![Olivia Continental polar air mass](https://github.com/OliviaTeng/TOEFL/assets/130678125/52f98e6d-f79f-4c4f-a451-357bc5fe7867)
 ![Olivia Gila lizard](https://github.com/OliviaTeng/TOEFL/assets/130678125/e6298843-2757-4644-bb35-e3a19da302b3)
+
+<img width="895" alt="Screen Shot 2023-08-15 at 11 03 50 PM" src="https://github.com/OliviaTeng/TOEFL/assets/130678125/156d4fdd-dfff-460d-8c1a-8be6f991861d">
+
+<img width="707" alt="Screen Shot 2023-08-15 at 11 04 06 PM" src="https://github.com/OliviaTeng/TOEFL/assets/130678125/ed193b41-d7a2-4df4-ae50-9c9f75ff4b05">
+
+<img width="753" alt="Screen Shot 2023-08-15 at 11 04 28 PM" src="https://github.com/OliviaTeng/TOEFL/assets/130678125/9ec5d51b-e6a3-46f1-b356-90a9c8ae4f95">
+
+<img width="701" alt="Screen Shot 2023-08-15 at 11 05 06 PM" src="https://github.com/OliviaTeng/TOEFL/assets/130678125/039d379a-fb05-4953-b7a4-4ecdaac6bb5b">
