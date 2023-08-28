@@ -16,4 +16,17 @@
 
 <img width="753" alt="Screen Shot 2023-08-15 at 11 04 28 PM" src="https://github.com/OliviaTeng/TOEFL/assets/130678125/9ec5d51b-e6a3-46f1-b356-90a9c8ae4f95">
 
-<img width="701" alt="Screen Shot 2023-08-15 at 11 05 06 PM" src="https://github.com/OliviaTeng/TOEFL/assets/130678125/039d379a-fb05-4953-b7a4-4ecdaac6bb5b">
+<img width="1196" alt="Screen Shot 2023-08-28 at 9 41 54 PM" src="https://github.com/OliviaTeng/TOEFL/assets/130678125/47b8d708-5cdb-41c2-823d-de22ff1eeb2a">
+
+![Uploading Screen Shot 2023-08-28 at 9.33.39 PM.png…]()<img width="1287" alt="Screen Shot 2023-08-28 at 9 35 22 PM" src="https://github.com/OliviaTeng/TOEFL/assets/130678125/94c25868-8f07-4494-ba4a-6140ecad6825">
+<img width="1238" alt="Screen Shot 2023-08-28 at 9 34 52 PM" src="https://github.com/OliviaTeng/TOEFL/assets/130678125/fc3aa762-ff92-4160-87f3-ba711e05dbab">
+<img width="1426" alt="Screen Shot 2023-08-28 at 9 34 06 PM" src="https://github.com/OliviaTeng/TOEFL/assets/130678125/ec2384e4-48d5-43da-bb5d-5a64258e0522">
+
+
+<img width="1196" alt="Screen Shot 2023-08-28 at 9 41 54 PM" src="https://github.com/OliviaTeng/TOEFL/assets/130678125/e84b9e0d-aae7-4c1d-af87-d47a237d367c">
+
+
+
+
+
+
